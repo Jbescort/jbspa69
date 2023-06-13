@@ -32,6 +32,8 @@ https://t.me/jbspa69com
 #johor bahru escorts
 #escort johor bahru
 
+看看 JB 的 SM 凌辱女王  https://github.com/Jbescort/jbspa69/tree/main/jbspa%20bdsm
+
 
 ![telegram-cloud-photo-size-5-6055397914898969893-x](https://github.com/Jbescort/jbspa69/assets/136110555/5ada14a7-b5a7-448e-87f8-33a91140cdba)
 ![telegram-cloud-photo-size-5-6055397914898969874-x](https://github.com/Jbescort/jbspa69/assets/136110555/ffe5c644-8313-429e-964c-07c1fe5c1e29)
